@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AlejandroInTheWork
 - 👀 I’m interested in Data and music
 - 🌱 I’m currently learning how to be the best worker in the Graph market solution
-- 📫 How to reach me conctat me trought my email (i17187&@dac.unicamp.br)
+- 📫 How to reach me: contact me trought my email (i171877@dac.unicamp.br)
 - ⚡ Fun fact: In my free time i'm training to be a professional boxer fighter
 
 <!---
